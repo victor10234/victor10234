@@ -2,7 +2,7 @@
 - 👀 I’m interested in musics and videogames
 - 🌱 I’m currently learning to learn
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me @victorkabom
+- 📫 How to reach me: instagram @victorkabom
 - 😄 Pronouns: vi
 - ⚡ Fun fact: I'm schizophrenic
 
